@@ -4,7 +4,7 @@ A passionate Software Engineer || DevOps Engineer || Automation Engineer
 
 Email Me 👉 ✉️ snehadhole7887@gmail.com For Project or Anything Else. 😊😊
 
-🔭 I’m currently working on: New Projet Ideas
+🔭 I’m currently working on: New Project Ideas
 🌱 I’m currently learning: New Technologies
 👯 I’m looking to collaborate on: Projetcs and Ideas
 🤔 I’m looking for help with: New Pojects 
